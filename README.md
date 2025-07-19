@@ -74,3 +74,8 @@ You can connect with Sudeep Bhat through the following platforms:
 
   * **LinkedIn**: [https://www.linkedin.com/in/bhat-sudeep/](https://www.linkedin.com/in/bhat-sudeep/)
   * **GitHub**: [https://github.com/redskull024](https://github.com/redskull024)
+  
+    <img width="1897" height="1001" alt="Screenshot 2025-07-19 223027" src="https://github.com/user-attachments/assets/fc7cb930-e3ae-4cad-92c5-96253660decb" />
+    <img width="1896" height="1001" alt="Screenshot 2025-07-19 223042" src="https://github.com/user-attachments/assets/7f185231-be61-4e8f-9412-e0a8036ef251" />
+    <img width="1893" height="999" alt="Screenshot 2025-07-19 223056" src="https://github.com/user-attachments/assets/8ffd0f96-35d0-465b-9c5b-1caf40a824da" />
+    <img width="1894" height="1002" alt="Screenshot 2025-07-19 223108" src="https://github.com/user-attachments/assets/2191bf56-ae0c-44d2-bd87-b0cd9339e989" />
